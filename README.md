@@ -5,7 +5,7 @@ Repositorio personal con proyectos y presentación profesional
 ## Sobre mí
 Soy **Cynthia Liz Flores Amaya**, profesional administrativa con más de 15 años de experiencia en el ámbito gubernamental. Me especializo en **gestión documental, expedientes digitales, seguridad vial y comunicación oficial**.  
 
-Mi formación académica incluye un **técnico en Relaciones Laborales y Recursos Humanos** y estudios avanzados en **Derecho**, lo que me permite combinar conocimientos legales con competencias administrativas.  
+Mi formación académica incluye un **técnico en Relaciones Laborales y Recursos Humanos** y estudios avanzados en **Derecho**, lo que me permite combinar conocimientos legales con competencias administrativas y en formación en **Comunicación y Medios**
 
 ## Habilidades
 - Organización de procesos y gestión documental  
