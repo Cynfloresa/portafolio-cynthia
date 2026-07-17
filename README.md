@@ -9,14 +9,21 @@ Mi formación académica incluye un **técnico en Relaciones Laborales y Recurso
 
 ## Habilidades
 - Organización de procesos y gestión documental  
-- Redacción institucional y judicial  
-- Comunicación visual: infografías, esquemas y presentaciones  
+- Redacción institucional y judicial y elaboración de notas oficiales
+- Oratoria y comunicación efectiva en presentaciones y exposiciones
+- Atención al público y resolución de consultas con trato profesional
+- Optimización de procesos administrativos y comunicación oficial
+- Diseño y producción de recursos visuales para presentaciones profesionales e institucionales
+- Elaboración de materiales estratégicos de comunicación para presentaciones y proyectos
+- Creación de contenidos visuales y documentales para apoyar la transmisión de ideas en entornos académicos y laborales
+- Desarrollo de presentaciones y recursos gráficos orientados a la comunicación efectiva
 - Uso de herramientas digitales para optimizar la transmisión de ideas  
 
 ## Intereses
-- Comunicación visual y diseño creativo  
-- Derecho y escritura judicial  
-- Tecnología educativa y recursos digitales  
+- Derecho y práctica jurídica  
+- Relaciones Laborales y Recursos Humanos  
+- Comunicación institucional y visual  
+- Atención al público y resolución de conflictos 
 
 ## Contacto
 - 📧 Email: cynthiaunidadsl@gmail.com  
